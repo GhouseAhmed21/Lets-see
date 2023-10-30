@@ -1,0 +1,11 @@
+"Happy belated birthday to this special person who is worthy of "on-time" wishes"
+"A belated birthday wishes that your life may be filled with joy, peace and the love that you deserve"
+"Belated happy birthday! May the year ahead be filled with abundant blessings, joy, and success"
+"Sorry I'm late to the celebration, but I hope your birthday was as amazing as you are!"
+"Life got in the way, but my heart was always with you"
+"Happy Little-Bit-Late Birthday! Sorry I forgot, but I wanted to send you belated birthday wishes all the same!
+"I'm so sorry for the delay"
+"My wishes for you are as heartfelt as ever"
+"I'm sending you all my love and best wishes for a year filled with happiness, success, and unforgettable moments"
+"Remember that you're always in my thoughts, and I'm grateful for the friendship we share"
+"Apologies for the tardiness, but my excitement for your special day is never-ending"
